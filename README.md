@@ -6,12 +6,11 @@ bilibili刷播放
 欢迎分享，点Issues反馈
 
 
-1.(密码1024)
-
-http://g8e.cn/NG92V
-
-
-
-2.这个复活了
+1.这个复活了
 
 http://kb1um.dz113.sbs/ntOfJn7
+
+
+2.(密码1024)  ，有繁琐人机验证码
+
+http://g8e.cn/NG92V
