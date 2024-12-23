@@ -8,8 +8,7 @@ bilibili刷播放
 
 1.这个复活了
 
-http://kb1um.dz113.sbs/ntOfJn7
-
+https://noxlink.net/LOS2T2
 
 2.(密码1024)  ，有繁琐人机验证码
 
